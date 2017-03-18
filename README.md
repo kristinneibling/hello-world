@@ -1,2 +1,3 @@
 # hello-world
 just playing around
+so ill start writing a little about my journey to outer space last night...
